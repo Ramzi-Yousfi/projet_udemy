@@ -1,0 +1,1 @@
+ce projet a un but d'apprentissage il est basé sur le theme de netflix c'etait une idée du formateur pour motivé ca session 
